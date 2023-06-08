@@ -1,4 +1,4 @@
-    Thanks for opening my GitHUb account
+    Thanks for opening my GitHub account
     I am Subhan Rafiq
     An entrepreneur, philantrophist, and a innovator
 
